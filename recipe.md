@@ -14,6 +14,6 @@
 3. ...
 
 ## Additional Directions by Alice:
-4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
-5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
-6. Pour the batter into a greased and floured 9x13-inch baking pan.
+4. Opt for a high-quality cocoa powder (Dutch-processed for a deeper, smoother flavor) and a good dark chocolate (at least 70% cocoa) for melted chocolate components.
+5. Incorporate a teaspoon or two of instant espresso powder or brewed coffee into the batter. Coffee intensifies the chocolate flavor without making it taste like coffee.
+6. If you want a richer, almost "black" chocolate flavor, try substituting some or all of the cocoa with black cocoa powder (the kind used in Oreo cookies).
